@@ -85,4 +85,4 @@
 https://www.behance.net/bareeqdepi
 .
 لينك الدرايف لمشروع التخرج
-https://drive.google.com/file/d/1ek02J-1tXcwDpojyW4wp7zeMNi8rIh5O/view
+https://drive.google.com/file/d/1877DvdVhX4BdOcXGCvnwrMQ3WdZ9Qdg9/view
